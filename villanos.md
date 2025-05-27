@@ -2,4 +2,4 @@
 
 1. Red Skull
 2. Dr Doom
-3. Dr Tito
+3. Capitanga Mérica
